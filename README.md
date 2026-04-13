@@ -1,2 +1,2 @@
 # Biologia
-Resumen de bilogia
+Resumen de biología, Creado por Thiago Resnicoff, Alias para donaciones: thiago231012.mp
